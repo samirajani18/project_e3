@@ -1,1 +1,2 @@
-software lab 5 may
+ninad kadu 1
+ninad kdu1
